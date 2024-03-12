@@ -2,7 +2,7 @@
 ## Introduction
 Adderall is one of the most prescribed medications for the treatment of Attention Deficit Hyperactivity Disorder(ADHD). ADHD is a neurodevelopmental disorder, which makes people suffering from it unable to focus or concentrate, having hard time retaining attention and highly impulsive. Adderall (ad 30 pill) is also used for the treatment of narcolepsy(sleeping disorder). 
 
-After the ingestion of [ad 30 pill]([url](https://bigpharmausa.com/adhd/adderall-30-mg/)) it can take effect within 30 minutes. Adderall may remain detectable for up to 2-3 days. In urine, the drug can be detected for approximately 1-2 days after use. Saliva testing can detect Adderall for a shorter window of time, usually within 24-48 hours.
+After the ingestion of [ad 30 pill](https://bigpharmausa.com/adhd/adderall-30-mg/) it can take effect within 30 minutes. Adderall may remain detectable for up to 2-3 days. In urine, the drug can be detected for approximately 1-2 days after use. Saliva testing can detect Adderall for a shorter window of time, usually within 24-48 hours.
 
 ## What is adderall? Working of Adderall :
 Adderall belongs to the Central Nervous System Stimulants class of drugs. 
