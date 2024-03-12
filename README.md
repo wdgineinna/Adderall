@@ -6,7 +6,7 @@ After the ingestion of [ad 30 pill](https://bigpharmausa.com/adhd/adderall-30-mg
 
 ## What is adderall? Working of Adderall :
 Adderall belongs to the Central Nervous System Stimulants class of drugs. 
-[adderall](https://bigpharmausa.com/adhd/adderall/) is a combination of Amphetamine and Dextroamphetamine salts. Adderall works in the brain and in the Central Nervous System. It regulates hormone secretions. People suffering ADHD can have improved focus and concentration by taking Adderall. Individuals suffering from narcolepsy can also benefit from it by having an improved sleep cycle.
+[Adderall](https://bigpharmausa.com/adhd/adderall/) is a combination of Amphetamine and Dextroamphetamine salts. Adderall works in the brain and in the Central Nervous System. It regulates hormone secretions. People suffering ADHD can have improved focus and concentration by taking Adderall. Individuals suffering from narcolepsy can also benefit from it by having an improved sleep cycle.
 
 ## Conditions similar to ADHD:
 ADHD is not particularly a disease, It is more like a body condition or disorder. where the individual has less dopamine production in their brain. There are other similar body conditions like having erectile dysfunction (ED). ED is a disorder or body condition where the person suffering from it will have hard time performing intercourse related activities. 
